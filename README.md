@@ -2,20 +2,22 @@
 
 ## 🎭 Parte 1: Lo que nunca me atreví a decir
 
-Hubo momentos en los que fingí ser más extrovertido de lo que realmente soy, solo para sentir que encajaba. Me reía más fuerte, hablaba más rápido y ocultaba mi ansiedad. Lo hacía para evitar parecer “raro” o “débil”. 😔
+En el colegio, aprendí a leer el ambiente antes de hablar. Cambiaba mi forma de expresarme dependiendo del grupo. Con los populares me volvía más callado, más neutral. En clase, evitaba levantar la mano por miedo a decir algo “tonto”. En realidad, tenía miles de ideas que jamás salieron de mi boca. 😶
 
-Ser auténtico me genera miedo… pero también alivio. Miedo al juicio, a la exclusión. Alivio porque ser yo mismo es mucho más fácil que mantener una fachada. 💬
+Mostrarme tal como soy me da vértigo. Es como estar frente a un espejo gigante en medio de una plaza. Me da miedo que lo que vean no les guste. Pero también siento alivio cuando alguien me escucha sin juzgar, cuando bajo la guardia y no me pasa nada malo. 🧠
 
-Lo que nunca me atreví a decir es que a veces me siento muy solo, incluso rodeado de gente. Que me importa más de lo que admito lo que piensan los demás. Que anhelo conexiones sinceras, no máscaras sociales. 🫂
-
-Mostrarme vulnerable ha sido difícil, pero también sanador. Y creo que, poco a poco, decir estas cosas en voz alta me da más fuerza. 💪
+Lo que nunca me atreví a decir es que muchas veces me siento fuera de lugar. Como si todos tuvieran un manual de cómo ser “normal” y yo no lo hubiera recibido. He escondido gustos, emociones y opiniones por miedo a no pertenecer. Hoy quiero empezar a soltar ese miedo. No necesito encajar si para eso tengo que esconderme. 🌱
 
 ---
 
 ## 🗺️ Parte 2: Mapa emocional
 
-- 🧩 **Dónde me siento yo mismo/a:** Cuando escribo en mi diario, cuando escucho música con audífonos caminando por la ciudad, o hablando con ese amigo que siempre me entiende sin juzgar.
+- 🧩 **Dónde me siento yo mismo/a:**  
+  Cuando dibujo sin propósito, cuando camino solo después de clases escuchando mi playlist favorita, cuando hablo con mi mejor amiga por horas sin filtros ni prisas. También cuando estoy en casa, en silencio, solo conmigo.
 
-- 💭 **Cuándo dejo de ser yo por agradar:** En clases participativas, cuando siento que debo dar la "respuesta perfecta". En redes sociales, donde todo se ve “ideal”. En reuniones familiares donde me exigen ser más “tradicional”.
+- 💭 **Cuándo dejo de ser yo por agradar:**  
+  En presentaciones donde siento que debo sonar “inteligente”. En reuniones familiares donde no puedo hablar de ciertos temas. En redes sociales, donde cuido demasiado cada palabra y foto para no “parecer raro”.
 
-- 🌟 **Pequeño paso para esta semana:** Compartir algo honesto (aunque sea pequeño) en una conversación. Mostrarme tal como soy, sin disfraz.
+- 🌟 **Pequeño paso para esta semana:**  
+  Escribir una publicación sincera, aunque no sea perfecta. Decirle a alguien cercano cómo me siento realmente, sin suavizarlo. Mostrarme vulnerable y quedarme ahí, respirando, sin correr.
+
