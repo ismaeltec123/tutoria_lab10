@@ -2,7 +2,7 @@
 
 ## 🎭 Parte 1: Lo que nunca me atreví a decir
 
-Hubo momentos en la universidad en los que fingí ser más extrovertido de lo que realmente soy, solo para sentir que encajaba. Me reía más fuerte, hablaba más rápido y ocultaba mi ansiedad. Lo hacía para evitar parecer “raro” o “débil”. 😔
+Hubo momentos en los que fingí ser más extrovertido de lo que realmente soy, solo para sentir que encajaba. Me reía más fuerte, hablaba más rápido y ocultaba mi ansiedad. Lo hacía para evitar parecer “raro” o “débil”. 😔
 
 Ser auténtico me genera miedo… pero también alivio. Miedo al juicio, a la exclusión. Alivio porque ser yo mismo es mucho más fácil que mantener una fachada. 💬
 
